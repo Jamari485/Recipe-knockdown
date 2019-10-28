@@ -18,3 +18,12 @@ I sometimes like to have a nice steak cooked medium well at least once a week.
 
 # Directions
 1. Marinate in olive oil, red wine vinegar, garlic, and/or soy sauce for 30 minutes at room temperature.
+2. Set up a 2-zone fire with one hot zone and one medium-low zone for the grill.
+3. Brush the grate and/or steak with vegetable oil.
+4. Grill the steak over high for 1-2 minutes until carred.
+
+# Notes
+You can add veggies and mash potatos to make the meal all the more filling and maybe add a salad of any kind.
+
+# Inspired By
+[Perfect Pan!](https://www.masterclass.com/articles/perfect-pan-seared-beef-sirloin-steak-recipe#what-is-sirloin-steak)
