@@ -1,6 +1,6 @@
 # Recipe-knockdown
 I sometimes like to have a nice steak cooked medium well at least once a week.
-![Image of steak](https://www.google.com/url?sa=i&source=images&cd=&ved=2ahUKEwij46ntu_vlAhVyU98KHc76AQcQjRx6BAgBEAQ&url=https%3A%2F%2Fwww.kansascitysteaks.com%2Fproduct%2Ftop-sirloin-steak&psig=AOvVaw3eOg0yDFMwZNAw74zL_DBJ&ust=1574431316189234)
+![Image of steak](https://www.kansascitysteaks.com/dyn-images/pdp_hero/Top-Sirloin_FH17-c091551b5768fbd7cb1ad63313ee666a.jpg)
 
 * Marinate: 30 min.
 * Grill: 1-2 min.
